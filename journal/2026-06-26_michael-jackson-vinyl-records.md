@@ -1,5 +1,20 @@
 # 2026-06-26 Michael Jackson Vinyl Records
 
+![Forever, Michael](../images/2026-06-26-michael-jackson-vinyl-records/forever-michael-front.jpeg)
+
+![Music & Me](../images/2026-06-26-michael-jackson-vinyl-records/music-and-me-front.jpeg)
+
+![Off the Wall](../images/2026-06-26-michael-jackson-vinyl-records/off-the-wall-front.jpeg)
+
+![Thriller](../images/2026-06-26-michael-jackson-vinyl-records/thriller-front.jpeg)
+
+![Michael Jackson White Label](../images/2026-06-26-michael-jackson-vinyl-records/michael-jackson-white-label.jpeg)
+
+Today I bought several Michael Jackson vinyl records, including *Forever, Michael*, *Music & Me*, *Off the Wall*, and one white label record. This is not a professional collection record yet. It is more like an early learning note. What caught my attention first was not only the name on the covers, but the feeling that these objects had already passed through time. The covers have wear, the plastic sleeves are old, and some corners are no longer perfect. But that is also why they feel different from new products. They are physical objects with history.
+
+今天买了几张 Michael Jackson 的黑胶唱片，包括《Forever, Michael》《Music & Me》《Off the Wall》《Thriller》，还有一张白标唱片。这还不是一篇很专业的收藏记录，更像是一篇早期学习笔记。最先吸引我的不只是封面上的名字，而是这些东西已经经过时间的感觉。封套有磨损，外面的塑料套也旧了，有些角已经不完美。但也正因为这样，它们和新的商品不一样。它们是带着历史痕迹的实体物品。
+
+
 Today I bought several Michael Jackson vinyl records, including *Forever, Michael*, *Music & Me*, *Off the Wall*, and one white label record. This is not a professional collection record yet. It is more like an early learning note. What caught my attention first was not only the name on the covers, but the feeling that these objects had already passed through time. The covers have wear, the plastic sleeves are old, and some corners are no longer perfect. But that is also why they feel different from new products. They are physical objects with history.
 
 今天买了几张 Michael Jackson 的黑胶唱片，包括《Forever, Michael》《Music & Me》《Off the Wall》，还有一张白标唱片。这还不是一篇很专业的收藏记录，更像是一篇早期学习笔记。最先吸引我的不只是封面上的名字，而是这些东西已经经过时间的感觉。封套有磨损，外面的塑料套也旧了，有些角已经不完美。但也正因为这样，它们和新的商品不一样。它们是带着历史痕迹的实体物品。
