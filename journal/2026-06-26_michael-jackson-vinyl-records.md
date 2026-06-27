@@ -1,14 +1,14 @@
 # 2026-06-26 Michael Jackson Vinyl Records
 
-![Forever, Michael](../images/2026-06-26-michael-jackson-vinyl-records/forever-michael-front.jpeg)
+![Forever, Michael](./2026-06-26_michael-jackson-vinyl-records/forever-michael-front.jpeg)
 
-![Music & Me](../images/2026-06-26-michael-jackson-vinyl-records/music-and-me-front.jpeg)
+![Music & Me](./2026-06-26_michael-jackson-vinyl-records/music-and-me-front.jpeg)
 
-![Off the Wall](../images/2026-06-26-michael-jackson-vinyl-records/off-the-wall-front.jpeg)
+![Off the Wall](./2026-06-26_michael-jackson-vinyl-records/off-the-wall-front.jpeg)
 
-![Thriller](../images/2026-06-26-michael-jackson-vinyl-records/thriller-front.jpeg)
+![Thriller](./2026-06-26_michael-jackson-vinyl-records/thriller-front.jpeg)
 
-![Michael Jackson White Label](../images/2026-06-26-michael-jackson-vinyl-records/michael-jackson-white-label.jpeg)
+![Michael Jackson White Label](./2026-06-26_michael-jackson-vinyl-records/michael-jackson-white-label.jpeg)
 
 Today I bought several Michael Jackson vinyl records, including *Forever, Michael*, *Music & Me*, *Off the Wall*, and one white label record. This is not a professional collection record yet. It is more like an early learning note. What caught my attention first was not only the name on the covers, but the feeling that these objects had already passed through time. The covers have wear, the plastic sleeves are old, and some corners are no longer perfect. But that is also why they feel different from new products. They are physical objects with history.
 
